@@ -1,0 +1,1 @@
+# SedaKarkacier_BitirmeProjesi
